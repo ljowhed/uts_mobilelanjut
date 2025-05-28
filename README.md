@@ -3,7 +3,6 @@
 
 
 ![Screenshot 2025-05-28 091502](https://github.com/user-attachments/assets/ca153794-1899-487a-a9dc-0e186767228e)
-r project.
 
 
 ![Screenshot 2025-05-28 091512](https://github.com/user-attachments/assets/375163ad-70b7-42cc-aed2-99d29e0abc69)
